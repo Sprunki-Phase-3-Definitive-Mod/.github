@@ -2,7 +2,7 @@
 
 # Sprunki Phase 3 Definitive Mod - Play Online On Your Browser
 
-Experience the ultimate upgrade to the world of Sprunki with the **Phase 3 Definitive Mod**. This enhanced version combines new features, refined gameplay mechanics, and improved visuals—all accessible directly in your browser. Ready to dive in? Play it now for free on **[Y9FreeGames.com](https://www.y9freegames.com/game/sprunki-phase-3-definitive/)**!
+Experience the ultimate upgrade to the world of Sprunki with the **Phase 3 Definitive Mod**. This enhanced version combines new features, refined gameplay mechanics, and improved visuals—all accessible directly in your browser. Ready to dive in? Play it now for free on Y9FreeGames.com!
 
 ---
 
